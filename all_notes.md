@@ -66,6 +66,28 @@
     
     https://www.alipan.com/s/a95UyeNsMMm
 
+# 大三
+
+1. 自控：
+   
+   https://www.alipan.com/s/x6otEw1TRRM
+
+2. 机器人导论&机器人动力学
+   
+   https://www.alipan.com/s/wNpnEiAGhcC
+
+3. 马原
+   
+   https://www.alipan.com/s/qNdxdKRp5Pa
+   
+   https://victor-yy.lanzoue.com/iIhwU2jedk8h
+
+
+
+
+
+    
+
 ## 
 
 ## 杂七杂八：[https://www.alipan.com/s/6ENYw7MKDcR]()
